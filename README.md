@@ -2,9 +2,9 @@ basic information for now...
 
 keitan or cathan he/him 18 y/o white american
 
-im an adult dont be weird or you're getting BBBLOCKED
+i'm an adult, don't be weird or you're getting BBBLOCKED
 
-and dont take everything i say seriously JESUS people
+and don't take everything i say seriously, JESUS people
 
 dni: basic trash predtree dwellers sensitive ppl and the mentally ill 
 
