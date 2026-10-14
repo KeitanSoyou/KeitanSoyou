@@ -1,9 +1,26 @@
-keitan/cathan hehim 8teen 
+<div align="center">
 
-im white american istp sp8w9
+<table>
+<tr>
+<td width="300" align="center" valign="middle">
 
-[rentry](https://rentry.co/telepathyblocker), [strawpage](https://kuonesslover.straw.page), & [guestbook](https://keitan.atabook.org) 
+<img src="https://file.garden/aZ0auV312E5LWDWL/bnuuy" width="250" alt="image">
 
-<img src="https://i.pinimg.com/736x/2e/14/43/2e14430b02b1f4c520eae67d3f83c370.jpg" width="350">
+</td>
+<td width="300" align="center" valign="middle">
 
+## $$\color{#715472}{\text{basic inf}}$$
 
+$$\color{#AB92A9}{\text{keitan or cathan hehim 8teen}}$$
+
+$$\color{#BF9EB4}{\text{im white american istp sp8w9}}$$
+
+$$\color{#AB92A9}{\text{click below for rentry sp ata}}$$
+
+[<img src="https://file.garden/as8FADScshGapry_/shidou" width="90" alt="image">](https://rentry.co/telepathyblocker)[<img src="https://file.garden/as8FADScshGapry_/bnuuy" width="70" alt="image">](https://kuonesslover.straw.page) [<img src="https://file.garden/as8FADScshGapry_/sae" width="80" alt="image">](https://keitan.atabook.org) 
+
+</td>
+</tr>
+</table>
+
+</div>
