@@ -34,7 +34,7 @@ both clips from j*sh
 
 https://github.com/user-attachments/assets/c6d9691a-8d1e-4de0-a853-58ab6604d231
   
-  frick this games luck
+im kaiser in the vids
 
 </td>
 </tr>
